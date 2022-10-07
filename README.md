@@ -6,7 +6,7 @@
 
 Github : @VanshajPoonia @HarshvardhanMor
 
-Twitter : @VanshajPoonia @HarshvadhanMor
+Twitter : @VanshajPoonia @HarshvardhanMor
 
 Discord : VanshajPoonia#2992   ! Shield 🌙#4151
 
